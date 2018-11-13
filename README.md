@@ -1,2 +1,3 @@
 # entornos_raul
 # QUIERO IR A CASA A COMER
+# YO TAMBIEN PD: JORDI, BESIS
